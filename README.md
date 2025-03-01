@@ -1,4 +1,8 @@
 # CraxsRAT #remoteacess #trojan #android
+
+https://i.imgur.com/5WsZYtO.jpeg
+
+
 CraxsRAT V7.6 original
 🔥 CraxsRAT – Controle Total do Seu Dispositivo Android 🔥  
 
